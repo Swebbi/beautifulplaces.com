@@ -1,0 +1,1 @@
+# beautifulplaces.com
